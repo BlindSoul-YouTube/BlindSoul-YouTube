@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Game Dev With Unity :)
 - 📫 You Can reach me On aikfmfgithub1@protonmail.com and i have a Youtube Channel Name : [BLIND SOUL](https://www.youtube.com/c/BLINDSOULYT) :)
 
-Thanks :)
+Thanks For Your Time... :)
 
 <!---
 BlindSoul-YouTube/BlindSoul-YouTube is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
